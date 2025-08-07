@@ -50,20 +50,26 @@ If You are looking for US Support then Contact the Canon printer helpline number
 Frequently Asked Questions (FAQs)
 =================================
 
-**How do I contact Canon customer support?**  
+**How do I contact Canon customer support?**
+
 Please give our Canon Printer Customer Support Team a call at 1-801-878-6858. If this is printer related, make sure your printer is registered to get connected faster and call from the Canon customer service number 1-801-878-6858 listed on your My Canon Account.
 
-**How do I contact Canon about self-service repair?**  
+**How do I contact Canon about self-service repair?**
+
 If you require information regarding self-service repair, please call the Canon printer tech support phone number 1-801-878-6858 US. Please note that for both product safety and optimal product operation, Canon recommends that most repairs be performed by a Canon authorized service technician.
 
-**Where can I find a Canon phone number?**  
+**Where can I find a Canon phone number?**
+
 You can visit Canon’s official website and navigate to the ‘Support’ section where you’ll find a list of contact numbers as Canon customer service number 1-801-878-6858 USA or tailored for various regions like North America, south America, west America, East America. Make sure you’re selecting a number that corresponds with your country for better assistance.
 
-**Need Assistance? Here’s How to Call Canon for Support**  
+**Need Assistance? Here’s How to Call Canon for Support**
+
 If you’re a Canon customer and need assistance with any of their products, calling Canon's Printer support Number 1-801-878-6858 line can be one of the quickest ways to get help.
 
-**How do I contact support for a PIXMA printer?**  
+**How do I contact support for a PIXMA printer?**
+
 Once you're there, you'll see that the most common Canon printer customer service number is 1-801-878-6858 USA. For PIXMA Printers, you must have a My Canon Account before calling (that's why it says to check your My Canon Account first). The main number is still the same - 1-801-878-6858. But you must register first.
 
-**How do I register a Canon product?**  
+**How do I register a Canon product?**
+
 Register your product to take advantage of all your Canon Printer support (Call 1-801-878-6858 USA) options, using our MyCanon Account System. It’s as simple as... Sign into your MyCanon account or create a new account Register your product and track all your Canon gear Select registered product to view your support options or Create Account.
